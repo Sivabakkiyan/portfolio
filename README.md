@@ -101,7 +101,7 @@ Got questions or want to connect? Reach out through:
 
 - Email: **sivabakkiyan22@gmail.com**
 - GitHub: [https://github.com/Sivabakkiyan](https://github.com/Sivabakkiyan)
-- LinkedIn: [https://linkedin.com/in/sivabakkiyan-i-2b54a0294](https://linkedin.com/in/sivabakkiyan-i-2b54a0294)
+- LinkedIn: [https://linkedin.com/in/sivabakkiyan](https://linkedin.com/in/sivabakkiyan)
 
 ---
 
